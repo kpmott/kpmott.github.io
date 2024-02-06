@@ -4,4 +4,9 @@
 
 ---
 
+![Photo](./hanbokengagementparty.jpg)
+
+---
+
 Registry: [Registry](https://www.google.com/)
+
