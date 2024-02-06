@@ -4,7 +4,7 @@
 
 ---
 
-![Photo](./hanbokengagementparty.jpg)
+![Photo](hanbokengagementparty.JPG)
 
 ---
 
